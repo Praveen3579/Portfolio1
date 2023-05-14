@@ -1,3 +1,3 @@
 # resume
-https://praveen3579.github.io/Portfolio/
+https://praveen3579.github.io/Portfolio1/
 
